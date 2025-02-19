@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sisyagniarachmi@gmail.com**
 
-- 📄 Know about my experiences [linkedin.com/in/sisyagniarachmi](linkedin.com/in/sisyagniarachmi)
+- 📄 Know about my experiences [linkedin.com/in/sisy-agnia-rachmi](linkedin.com/in/sisy-agnia-rachmi)
 
 - ⚡ Fun fact **Cat lover 🐱🐈**
 
